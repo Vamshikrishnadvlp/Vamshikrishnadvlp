@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vamshikrishnadvlp
+- 👋 Hi, I’m @Vamshikrishna
 - 👀 I’m interested in CODING and learning new things
 - 🌱 I’m currently learning C language
 - 📫 How to reach me insta=k.vamshi_2007
